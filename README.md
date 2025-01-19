@@ -205,6 +205,6 @@ For connecting with me on SQL, data analysis, and other data-related topics, mak
 
 - **Mobile/WhatsApp**: +91 - 8210784807
 - **LinkedIn**: [Connect with me professionally](www.linkedin.com/in/rishi-pandey-48a306169)
-- **E - Mail**: riship2403@gmail.com
+- **E - Mail**: [Work E-Mail](riship2403@gmail.com)
 
 Thank you for your support, and I look forward to connecting with you!
