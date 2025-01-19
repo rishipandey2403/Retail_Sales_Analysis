@@ -204,7 +204,7 @@ This project is part of my portfolio, showcasing the SQL skills essential for da
 For connecting with me on SQL, data analysis, and other data-related topics, make sure to follow me on social media and join our community:
 
 - **Mobile/WhatsApp**: +91 - 8210784807
-- **LinkedIn**: [Connect with me professionally](www.linkedin.com/in/rishi-pandey-48a306169)
+- **LinkedIn**: [Connect with me professionally](https://www.linkedin.com/in/rishi-pandey-48a306169)
 - **E - Mail**: [Work E-Mail](riship2403@gmail.com)
 
 Thank you for your support, and I look forward to connecting with you!
